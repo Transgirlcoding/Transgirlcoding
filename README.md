@@ -1,4 +1,4 @@
-### Hi there 👋 My name is hannah,
+### Hi there 👋 My name is hannah or also known as Kayla,
 welcome to my Github page 
 
 I am 20 years old, a trans female, a student at college, a retail and hospitality worker and a carer 
