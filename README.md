@@ -1,7 +1,5 @@
 ### Hi there 👋 My name is hannah,
-
-<img src="https://www.hannahcodes.co.uk/assets/images/home_pics/IMG_7063.JPG" alt="preview" width="300" height="300">
-welcome to my Github page <br>
+welcome to my Github page
 
 ## About me
 I am 22 years old, I am a transgender female, and a young carer
